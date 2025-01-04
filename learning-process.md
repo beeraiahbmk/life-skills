@@ -1,6 +1,6 @@
 # Feynman Technique
 
-## lets make our ideas easier to understand by explaining them in a simple way and by using easy-to-understand comparison.
+* lets make our ideas easier to understand by explaining them in a simple way and by using easy-to-understand comparison.
 
 # Idea for learning fast and effictively
 
