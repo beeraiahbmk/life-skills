@@ -21,6 +21,33 @@
 2. I will stuck on some words. If i dont know that word and meaning of it.
 3. I Will be not motivated when speaker speaking the topic which i dont know.
    
-# What can i do to improve my Listening Process
+# What i do to improve my Listening Process
+
+1. Try to relative my thoughts into that topic.
+2. Focusing on speakers body language and try to main eye contact.
+3. Try to do mediation and try to minimze the distraction.
+
+# Swtching to Passive Communication
+
+1. When conversation with the highly respected people.
+2. When it comes the topic which i dont know and i have to answer wisely.
+3. To avoiding the unnecessary conflicts.
+   
+# Switching to Aggressive communication
+
+1. When i feel threatened and disrespected.
+2. When speaker or person blaming me which i did not reason for the situation.
+3. When i know the concept or topic which i know i try to aggressively communicate that.
+   
+# Switching to Passive Aggressive Communication
+
+1. When the people try to behave sarcastic on me.
+2. When people are point me what i have not done or on purpose.
+   
+# Assertive Communication
+
+1. Expressing the thoughts with clear and concise message.
+2. Prepare before the communicating with others.
+
 
    
